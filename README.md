@@ -1,0 +1,4 @@
+- 👋 Olá, meu nome é @JooLucc
+- Meu contato é joaoluccasmeneguini2019@outlook.com
+- 👀 Estou interessado em programação  
+- 🌱 Atualmente estou aprendendo a programar
